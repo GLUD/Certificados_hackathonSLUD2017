@@ -1,1 +1,1 @@
-# Certificados_hackathonSLUD2017
+# Certificados hackathonSLUD2017
